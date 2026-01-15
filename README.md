@@ -1,5 +1,5 @@
 # Devil Trigger
 
-> Each Man is in His spectres power
+> Each man is in his spectres power
 >
 > Until the arrival of that hour
